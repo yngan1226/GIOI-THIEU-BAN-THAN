@@ -11,4 +11,4 @@ Xin chào, mình là Ngân mình đến từ KON TUM hiện tại mình đang l�
  -email: ngankontum12@gmail.com
  - link facebook: https://www.facebook.com/share/16VXWevBEe/
 ##câu trích dẫn yêu thích:
- "hãy đi trên con đường mà bạn chọn, nếu sai là bài học đúng là hạnh phúc"
+ "Đứng trên con đường mà bạn chọn, nếu sai là bài học còn đúng là tương lai"
